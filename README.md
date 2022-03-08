@@ -1,1 +1,1 @@
-# Vulture-
+# VultureCoin
